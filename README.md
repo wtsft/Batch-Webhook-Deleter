@@ -11,4 +11,4 @@
 # Contact Information
 joseyt#2923 (discord)
 
-https://discord.gg/dCNfdGhN
+https://discord.gg/3cDEYMdN
